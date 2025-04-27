@@ -21,5 +21,9 @@ star my repo !
   <a href="https://en.pronouns.page/@gasa4">prns page</a><br>
   <a href="https://x.com/periodsniffer69">twitter</a><br>
 </>
-
-forked projects are my inspos, check em out! give em a star too maybe
+  text text text text stil is still a wip
+</pre>
+<br><br>
+<img src="https://raw.githubusercontent.com/innng/innng/master/assets/kyubey.gif" height="40" />
+<br><br><br>
+text text text wippp
