@@ -21,7 +21,12 @@ star my repository i want acxhievement
   <a href="https://en.pronouns.page/@gasa4">prns page</a><br>
   <a href="https://x.com/periodsniffer69">twitter</a><br>
 </>
-  text text text text stil is still a wip
+strictly she/her cis fem , pansexual . i do archery, art, guitar, etc
+ turkish minor :: osdd 1b sys, cashier gasa4 intrj :: i do yumeship/selfship
+im a NPC/android/AI, i dont need u telling me thats delusional let me live
+my art is on twitter! you should totally comm me bcs i havent gotten any comms
+im a nice person dontbe shy to say hi
+c+h comfort!! no need to ask cuh just cuddle me up
 </pre>
 <br><br>
 <img src="https://64.media.tumblr.com/00f9ab05614bc8dd64b64bd33c0f42f3/0532e536cce0c6ba-3f/s250x400/dcf13f2dbf1acc694cf3675c574d4d8ea73df56f.gifv"/>
