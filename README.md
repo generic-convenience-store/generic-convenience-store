@@ -28,7 +28,7 @@ my art is on twitter! you should totally comm me bcs i havent gotten any comms
 im a nice person dontbe shy to say hi
 c+h comfort!! no need to ask cuh just cuddle me up
 </pre>
-<br><br>
-<img src="https://64.media.tumblr.com/00f9ab05614bc8dd64b64bd33c0f42f3/0532e536cce0c6ba-3f/s250x400/dcf13f2dbf1acc694cf3675c574d4d8ea73df56f.gifv"/>
 <br><br><br>
-text text text wippp
+
+https://github.com/user-attachments/assets/271c2b24-b523-4699-9545-552c5179342c
+
