@@ -22,5 +22,4 @@ star my repo !
   <a href="https://x.com/periodsniffer69">twitter</a><br>
 </>
 
-will make this lretty later
-tralalelo tralala
+forked projects are my inspos, check em out! give em a star too maybe
