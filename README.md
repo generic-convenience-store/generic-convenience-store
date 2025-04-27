@@ -1,7 +1,7 @@
 
 github username change count: 14
 
-star my repo !
+star my repository i want acxhievement
 
 
 ![](https://komarev.com/ghpvc/?username=late-night-snacking&label=CUSTOMERS&style=for-the-badge&color=yellowgreen)
@@ -24,6 +24,6 @@ star my repo !
   text text text text stil is still a wip
 </pre>
 <br><br>
-<img src="https://raw.githubusercontent.com/innng/innng/master/assets/kyubey.gif" height="40" />
+<img src="https://64.media.tumblr.com/00f9ab05614bc8dd64b64bd33c0f42f3/0532e536cce0c6ba-3f/s250x400/dcf13f2dbf1acc694cf3675c574d4d8ea73df56f.gifv"/>
 <br><br><br>
 text text text wippp
