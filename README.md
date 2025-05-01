@@ -21,7 +21,7 @@ star my repository i want acxhievement! also please do not interact with me if u
   <a href="https://x.com/periodsniffer69">twitter</a><br>
 </>
 strictly she/her cis fem , pansexual . i do archery, art, guitar, etc
- turkish minor :: osdd 1b sys, cashier gasa4 intrj :: i do yumeship/selfship
+ turkish minor :: osdd 1b sys, thomas f/o :: i do yumeship/selfship
 im a NPC/android/AI, i dont need u telling me thats delusional let me live
 my art is on twitter! you should totally comm me bcs i havent gotten any comms
 im a nice person dontbe shy to say hi
