@@ -3,7 +3,7 @@
 star my repository i want acxhievement! also please do not interact with me if ur friend w him eughhh google doc on him coming soon
 
 
-![](https://komarev.com/ghpvc/?username=late-night-snacking&label=CUSTOMERS&style=for-the-badge&color=yellowgreen)
+![](https://komarev.com/ghpvc/?username=late-night-snacking&label=PEOPLE&style=for-the-badge&color=yellowgreen)
  
 <div align="center">
 <img src="https://files.catbox.moe/6mbkis.png" width="25%" align="right" />
