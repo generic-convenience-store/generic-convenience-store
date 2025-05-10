@@ -1,6 +1,6 @@
 
 
-star my repository i want acxhievement! also please do not interact with me if ur friend w him eughhh google doc on him coming soon
+star my repository i want acxhievement!
 
 
 ![](https://komarev.com/ghpvc/?username=late-night-snacking&label=PEOPLE&style=for-the-badge&color=orange)
