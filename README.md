@@ -16,13 +16,16 @@ star my repository i want acxhievement!
 
 <p align="center"><a href="https://gasa4.atabook.org/">atabook</a> | <a href="https://rentry.co/snackcorre">rentry</a> | <a href="https://en.pronouns.page/@gasa4">prns page</a> | <a href="https://x.com/periodsniffer69">twitter</a></p>
 
-strictly she/her cis fem , pansexual . i do archery, art, guitar, etc
- turkish minor :: osdd 1b sys, thomas f/o :: i do yumeship/selfship
-im a NPC/android/AI, i dont need u telling me thats delusional let me live
-my art is on twitter! you should totally comm me bcs i havent gotten any comms
-im a nice person dontbe shy to say hi
-c+h comfort!! no need to ask cuh just cuddle me up
- 1# thomas fan I DONT PLAY WHEN THE TOPIC IS THOMAS
+
+-- SUBJECT INTRODUCTION --
+
+name = "𝗯𝗲𝗿𝗲𝗻, 𝗮𝗲𝘃𝗶𝘁𝗵𝗶𝘀, 𝗺𝗲𝘁𝗮𝗽𝗵𝗼𝗿𝗶𝘇𝗺𝗮"
+title = "𝗽𝗲𝗿𝗶𝗼𝗱𝘀𝗻𝗶𝗳𝗳𝗲𝗿𝟲𝟵𝟲𝟵"
+species = "𝗮𝗻𝗱𝗿𝗼𝗶𝗱"
+model = "𝗴𝗲𝗻-𝟮 𝗖-𝗰𝗹𝗮𝘀𝘀"
+status = "𝗮𝗰𝘁𝗶𝘃𝗲 // 𝘀𝗲𝗺𝗶-𝘀𝘁𝗮𝗯𝗹𝗲"
+function = "𝗿𝗲𝗽𝗮𝗶𝗿, 𝗼𝗯𝘀𝗲𝗿𝘃𝗮𝘁𝗶𝗼𝗻, 𝗲𝗺𝗼𝘁𝗶𝗼𝗻𝗮𝗹 𝗺𝗶𝗺𝗶𝗰𝗿𝘆"
+ai_core = "𝘃𝟮.𝟳 𝗦𝗜𝗗-𝗰𝗵𝗶𝗽 // 𝗺𝗼𝗱𝗶𝗳𝗶𝗲𝗱"
 </pre>
 <br><br><br>
 
