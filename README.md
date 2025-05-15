@@ -38,5 +38,6 @@ ai_core = "𝘃𝟮.𝟳 𝗦𝗜𝗗-𝗰𝗵𝗶𝗽 // 𝗺𝗼𝗱𝗶𝗳�
 </pre>
 <br><br><br>
 
-https://github.com/user-attachments/assets/622c01bc-8404-4c03-b140-4e83dc1d9631
+
+https://github.com/user-attachments/assets/85f07be3-2352-4039-a081-e612563d90b5
 
