@@ -3,7 +3,7 @@
 star my repository i want acxhievement!
 
 
-![](https://komarev.com/ghpvc/?username=late-night-snacking&label=PEOPLE&style=for-the-badge&color=orange)
+![](https://count.getloli.com/@late-night-snacking?name=late-night-snacking&theme=original-new&padding=4&offset=0&align=top&scale=1&pixelated=1&darkmode=auto&num=711)
  
 <div align="center">
 <img src="https://files.catbox.moe/416692.png" width="25%" align="right" />
