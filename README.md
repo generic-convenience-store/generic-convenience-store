@@ -3,7 +3,7 @@
 star my repository i want acxhievement!
 
 
-![](https://komarev.com/ghpvc/?username=late-night-snacking&style=plastic&base=711&color=orange)
+![](https://komarev.com/ghpvc/?username=late-night-snacking&style=plastic&color=orange)
  
 <div align="center">
 <img src="https://files.catbox.moe/416692.png" width="25%" align="right" />
