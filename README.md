@@ -11,7 +11,7 @@ star my repository i want acxhievement!
 <br><br>
 <pre>
 
-
+![](https://files.catbox.moe/k28f1i.png) LETS GO 100 FOLLOWERS
 
 
 <p align="center"><a href="https://gasa4.atabook.org/">atabook</a> | <a href="https://rentry.co/snackcorre">rentry</a> | <a href="https://en.pronouns.page/@gasa4">prns page</a> | <a href="https://x.com/periodsniffer69">twitter</a></p>
@@ -51,4 +51,6 @@ ai_core = "𝘃𝟮.𝟳 𝗦𝗜𝗗-𝗰𝗵𝗶𝗽 // 𝗺𝗼𝗱𝗶𝗳�
 
 
 https://github.com/user-attachments/assets/85f07be3-2352-4039-a081-e612563d90b5
+
+
 
