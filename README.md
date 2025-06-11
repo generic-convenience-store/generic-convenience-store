@@ -18,7 +18,7 @@
 
 ◜ ͜ །　beren　 ͜ 　she　ꔫ◞ gndrfluid
 .　ptsd　᎖　depression　⌓ ![](https://64.media.tumblr.com/4dd4d674c79d58b72303708a2d0aa861/5d758e6be7ba86e3-58/s75x75_c1/1dc97c3d83ba9fae1805bac07c7665d1f7ad24c3.gifv) ⌓   osdd-1b  （✿˘ ᵕ ˘）
-⊂⊱　hunter, idil dni　![](https://64.media.tumblr.com/ac004bf14017cc5805d66025e54defe0/b77abe8891825433-8e/s75x75_c1/1fdeca739f9c0d0f5d5088757e6d714548862c5d.gifv)﹐ 　⊰⊃
+⊂⊱　tad bit isolated, BMF!!!!!!　![](https://64.media.tumblr.com/ac004bf14017cc5805d66025e54defe0/b77abe8891825433-8e/s75x75_c1/1fdeca739f9c0d0f5d5088757e6d714548862c5d.gifv)﹐ 　⊰⊃
 ⏝⏝　꒰　　꒱
 ![](https://adriansblinkiecollection.neocities.org/stamps/c2.gif)
 </pre>
