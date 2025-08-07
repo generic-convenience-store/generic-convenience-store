@@ -3,11 +3,11 @@
 .　　　　 　　　　 　　star my repository i want acxhievement!  recallahollowheart fans please interact with care
 
 
-.　　　　 　　　　　　 　　　　 　　 　　　　 　　　　 　　　　 　　　　 　　　　 　　　　 　　　　 　　　 ![](https://komarev.com/ghpvc/?username=late-night-snacking&style=plastic&color=959ea0)
+.　　　　 　　　　　　 　　　　 　　 　　　　 　　　　 　　　　 　　　　 　　　　 　　　　 　　　　 　　　 ![](https://komarev.com/ghpvc/?username=late-night-snacking&style=plastic&color=637d5a)
  
 <div align="center">
-<img src="https://files.catbox.moe/bg7v5c.png" width="25%" align="right" />
-<img src="https://readme-typing-svg.demolab.com?font=Inconsolata&weight=500&size=50&duration=4000&pause=300&color=555aa0&center=true&vCenter=true&multiline=true&repeat=false&random=false&width=1300&height=140&lines=+heard+you+moved+into+the+avenues;but+you+still+cant+learn+to+see+things+thru+%E2%9A%9D" width="70%" />
+<img src="https://files.catbox.moe/c63i0i.png" width="25%" align="right" />
+<img src="https://readme-typing-svg.demolab.com?font=Inconsolata&weight=500&size=50&duration=4000&pause=300&color=637d5a&center=true&vCenter=true&multiline=true&repeat=false&random=false&width=1300&height=140&lines=+what+do+you+do+with+a+loving+feeling;if+the+loving+feeling+makes+you+all+alone+%E2%9A%9D" width="70%" />
 <br><br>
 <pre>
 
