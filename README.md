@@ -6,7 +6,7 @@
 .　　　　 　　　　　　 　　　　 　　 　　　　 　　　　 　　　　 　　　　 　　　　 　　　　 　　　　 　　　 ![](https://komarev.com/ghpvc/?username=late-night-snacking&style=plastic&color=637d5a)
  
 <div align="center">
-<img src="https://files.catbox.moe/c63i0i.png" width="25%" align="right" />
+<img src="https://files.catbox.moe/zpl33p.png" width="25%" align="right" />
 <img src="https://readme-typing-svg.demolab.com?font=Inconsolata&weight=500&size=50&duration=4000&pause=300&color=637d5a&center=true&vCenter=true&multiline=true&repeat=false&random=false&width=1300&height=140&lines=+what+do+you+do+with+a+loving+feeling;if+the+loving+feeling+makes+you+all+alone+%E2%9A%9D" width="70%" />
 <br><br>
 <pre>
