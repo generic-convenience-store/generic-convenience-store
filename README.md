@@ -25,8 +25,11 @@
 </pre>
 <br><br><br>
 
+<p align="center">
+  <img src="https://files.catbox.moe/wbm8hd.png" alt="cool pic" width="800"/>
+</p>
 
-https://github.com/user-attachments/assets/85f07be3-2352-4039-a081-e612563d90b5
+
 
 
 
