@@ -1,6 +1,6 @@
 
 
-.　　　　 　　　　 　　star my repository i want acxhievement!  recallahollowheart fans please interact with care
+.　　　　 　　　　 　　my only dni is sixty4gamer on github. Go Away and stop trying to run away from what you have done /dir
 
 
 .　　　　 　　　　　　 　　　　 　　 　　　　 　　　　 　　　　 　　　　 　　　　 　　　　 　　　　 　　　 ![](https://komarev.com/ghpvc/?username=late-night-snacking&style=plastic&color=637d5a)
