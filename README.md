@@ -18,7 +18,6 @@
 
 <p align="center"><a href="https://gasa4.atabook.org/">atabook</a> | <a href="https://rentry.co/hallucinatorry">rentry</a> | <a href="https://en.pronouns.page/@gasa4">prns page</a> | <a href="https://x.com/periodsniffer69">twitter</a></p>
 tzeri <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/3eedc66c-7eca-46ca-bf58-d28b9175af22" /> beren
-ptsd + depression
 infp <img width="10" height="10" alt="image" src="https://github.com/user-attachments/assets/ae79ed97-e633-4a9f-bb06-02b5deeea908" />
 
 genderfluid almondsexual
