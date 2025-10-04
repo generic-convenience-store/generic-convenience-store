@@ -19,7 +19,7 @@
 <p align="center"><a href="https://gasa4.atabook.org/">atabook</a> | <a href="https://rentry.co/hallucinatorry">rentry</a> | <a href="https://en.pronouns.page/@gasa4">prns page</a> | <a href="https://x.com/periodsniffer69">twitter</a></p>
 
 yvossketh , yvosk , shame
-genderfluid panromantix
+genderfluid panromantic
 inxj
 medically recognized aspd and depression ohh lala
 be my moot, dont be shy to talk to me
