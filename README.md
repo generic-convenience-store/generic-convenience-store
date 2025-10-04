@@ -21,9 +21,10 @@
 yvossketh , yvosk , shame
 genderfluid panromantix
 inxj
-medically recognized aspd
+medically recognized aspd and depression ohh lala
 be my moot, dont be shy to talk to me
-might come off as dry
+i like rainbows and tacos and randomness i love scene and decora and emo
+but.. thats.. pretty obvious.. Isnt.. It.. /quote
 
 </pre>
 <br><br><br>
