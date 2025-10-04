@@ -3,15 +3,15 @@
 .　　　　 　　　　 　　my only dni is sixty4gamer on github. Go Away and stop trying to run away from what you have done /dir
 
 
-.　　　　 　　　　　　 　　　　 　　 　　　　 　　　　 　　　　 　　　　 　　　　 　　　　 　　　　 　　　 ![](https://komarev.com/ghpvc/?username=tzerielle&style=plastic&color=637d5a&base=1451)
+.　　　　 　　　　　　 　　　　 　　 　　　　 　　　　 　　　　 　　　　 　　　　 　　　　 　　　　 　　　 ![](https://komarev.com/ghpvc/?username=tzerielle&style=plastic&color=424242&base=1451)
  
 <div align="center">
-<img src="https://files.catbox.moe/47ysbj.webp" width="27%" align="right" />
+<img src="https://files.catbox.moe/pzw1uc.png" width="27%" align="right" />
 <img src="https://readme-typing-svg.demolab.com?font=Inconsolata&weight=500&size=50&duration=4000&pause=300&color=637d5a&center=true&vCenter=true&multiline=true&repeat=false&random=false&width=1300&height=140&lines=+what+do+you+do+with+a+loving+feeling;if+the+loving+feeling+makes+you+all+alone+%E2%9A%9D" width="70%" />
 <br><br>
 <pre>
 
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/6a15d32e-1fa6-4616-b468-2ed766a6afdf" />
+<img width="99" height="56" alt="image" src="https://64.media.tumblr.com/19fba37de7773b903739c2e44820c638/c9393b061573e4e9-be/s100x200/90e19a043ea8b1c5a0944ef5d0235e984ee227ea.gif" />
 
 
 
