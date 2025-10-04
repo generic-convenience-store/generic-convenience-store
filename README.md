@@ -1,6 +1,6 @@
 
 
-.　　　　 　　　　 　　my only dni is sixty4gamer on github. Go Away and stop trying to run away from what you have done /dir
+.　　　　 　　　　 　　
 
 
 .　　　　 　　　　　　 　　　　 　　 　　　　 　　　　 　　　　 　　　　 　　　　 　　　　 　　　　 　　　 ![](https://komarev.com/ghpvc/?username=tzerielle&style=plastic&color=424242&base=1451)
@@ -17,18 +17,19 @@
 
 
 <p align="center"><a href="https://gasa4.atabook.org/">atabook</a> | <a href="https://rentry.co/hallucinatorry">rentry</a> | <a href="https://en.pronouns.page/@gasa4">prns page</a> | <a href="https://x.com/periodsniffer69">twitter</a></p>
-yvossketh <img width="20" height="20" alt="image" src="https://64.media.tumblr.com/a5938a48b27ff1036f8b53caf072a950/24f75b0b264c07f2-eb/s75x75_c1/4035c3d0751a47ee6895a691c37a6e607aeacfaf.gif" /> beren
-infp <img width="10" height="10" alt="image" src="https://github.com/user-attachments/assets/ae79ed97-e633-4a9f-bb06-02b5deeea908" />
 
-genderfluid almondsexual
-extrovert, ints always open unless on dni
-no dni list, every1 open 2 int
-libra , bday 25th september
+yvossketh , yvosk , shame
+genderfluid panromantix
+inxj
+medically recognized aspd
+be my moot, dont be shy to talk to me
+might come off as dry
+
 </pre>
 <br><br><br>
 
 <p align="center">
-  <img src="https://files.catbox.moe/wbm8hd.png" alt="cool pic" width="800"/>
+  <img src="https://files.catbox.moe/i0jsob.png" alt="info.." width="800"/>
 </p>
 
 ![](https://files.catbox.moe/b9lcv2.png)
