@@ -1,5 +1,4 @@
-REMAKING HTIIISSS
-![](https://komarev.com/ghpvc/?username=your-github-username)
+
 
 <div align="center">
 <img src="https://files.catbox.moe/d61pqx.jpg" width="25%" align="right" />
