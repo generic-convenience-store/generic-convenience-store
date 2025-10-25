@@ -6,14 +6,16 @@
 <br><br>
 <pre>
 <a href="https://rentry.co/snackcorre">rentry</a> <a href="https://rentry.co/myboundriessjsj/">boundaries</a> <a href="https://gasa4.atabook.org">atabook</a> <a href="https://en.pronouns.page/@gasa4">prnspage</a>
-wip
-  wip
-  wip
-  wip
-  wip
-  wip
-  wip
-    wip
+hi im cashier
+thomas (hwwhp) yume since 2023 (selective sharing)
+i am an freelance artist
+dont call me beren unless we are close pls
+umm my commisions are open
+im genderfluid and panromantic oohlala
+my pronouns are he/she and others are in my prnspage
+all the art on my page is from snakkipu on tiktok i forgot their pinterest user sorry
+i am in party island most of the time
+be my friend! i love making friends
 
  </pre>
 <br><br>
