@@ -2,7 +2,7 @@
 
 <div align="center">
 <img src="https://files.catbox.moe/d61pqx.jpg" width="25%" align="right" />
-<img src="https://readme-typing-svg.demolab.com?font=Inconsolata&weight=500&size=50&duration=4000&pause=300&color=A7A459&center=true&vCenter=true&multiline=true&repeat=false&random=false&width=1300&height=140&lines=wip;wip+%E2%9C%A9" width="70%" />
+<img src="https://readme-typing-svg.demolab.com?font=Inconsolata&weight=500&size=50&duration=4000&pause=300&color=A7A459&center=true&vCenter=true&multiline=true&repeat=false&random=false&width=1300&height=140&lines=you+and+me,+we+are+not+the+same;i+am+a+sinner,+you+are+a+saint+%E2%9C%A9" width="70%" />
 <br><br>
 <pre>
 <a href="https://rentry.co/snackcorre">rentry</a> <a href="https://rentry.co/myboundriessjsj/">boundaries</a> <a href="https://gasa4.atabook.org">atabook</a> <a href="https://en.pronouns.page/@gasa4">prnspage</a>
