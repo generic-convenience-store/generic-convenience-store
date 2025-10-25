@@ -21,7 +21,10 @@ wip
   <br><br><br>   
 
 
-![a548f990c56a25c1058200f04a7c6ebb (1)](https://github.com/user-attachments/assets/4588694b-87ea-4b1a-8a8e-1463563e9940)
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/4588694b-87ea-4b1a-8a8e-1463563e9940" width="700">
+</p>
+
 
 
 
