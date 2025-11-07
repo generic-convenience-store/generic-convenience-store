@@ -1,22 +1,20 @@
-
-
 <div align="center">
-<img src="https://files.catbox.moe/ay54cg.jpg" width="25%" align="right" />
-<img src="https://readme-typing-svg.demolab.com?font=Inconsolata&weight=500&size=50&duration=4000&pause=300&color=A7A459&center=true&vCenter=true&multiline=true&repeat=false&random=false&width=1300&height=140&lines=you+and+me,+we+are+not+the+same;i+am+a+sinner,+you+are+a+saint+%E2%9C%A9" width="70%" />
+<img src="https://github.com/innng/innng/assets/26755058/5e0ce0fb-c544-4f8c-a307-5849165746d0" width="25%" align="right" />
+<img src="https://readme-typing-svg.demolab.com?font=Inconsolata&weight=500&size=50&duration=4000&pause=300&color=A7A459&center=true&vCenter=true&multiline=true&repeat=false&random=false&width=1300&height=140&lines=Hello+hello;I'm+Ing%2C+a+tech+goblin+and+magical+girl+wannabe+%E2%9C%A9" width="70%" />
 <br><br>
 <pre>
-<a href="https://rentry.co/snackcorre">rentry</a> <a href="https://rentry.co/myboundriessjsj/">boundaries</a> <a href="https://gasa4.atabook.org">atabook</a> <a href="https://en.pronouns.page/@gasa4">prnspage</a>
-hi im cashier
-thomas (hwwhp) yume since 2023 (selective sharing)
-i am an freelance artist
-dont call me beren unless we are close pls
-umm my commisions are open
-im genderfluid and panromantic oohlala
-
-
- </pre>
+    TXT
+    TXT
+    TXT
+    TXT
+    tXT
+    TXT
+     TXT
+     TXT
+     TXT
+</pre>
 <br><br>
-  <br><br><br>   
+<br><br><br>
 
 
 <p align="center">
